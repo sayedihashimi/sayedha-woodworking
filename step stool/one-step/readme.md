@@ -1,0 +1,1 @@
+Designs for a simple dovetailed one step step-stool. Pics of the step stool are at https://imgur.com/gallery/QerR8jL.
